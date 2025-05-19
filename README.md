@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **c,java oop concept,Html,css**
 
-- 📫 How to reach me **piumalranepura2002@gmail.com**
+- 📫 How to reach me **piumalranepura@gmail.com**
 
 - ⚡ Fun fact **I can do it!!!**
 
